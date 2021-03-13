@@ -1,1 +1,2 @@
 # minor_projects
+# YOUR TIME IS PRECIOUS. DON'T WASTE IT HERE.
